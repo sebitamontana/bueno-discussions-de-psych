@@ -3,7 +3,7 @@ REAL!?!?!??!?!?!?!?!
 
 shadow mario removed the discussions on the worst day possible, lets be honest
 
-ANYWAYS.
+anyways,
 
 # the rules :)))))
 ok here are the rules:
